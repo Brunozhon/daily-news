@@ -10,3 +10,15 @@ I know that some of my freinds and teachers are visiting this site. If you are v
 
 
 [Read more](2020/11/22/thanks-a-lot-for-a-lot-of-views-in-my-website-graphs/)
+
+### 🎉🎉🎉🎉🎉🎉 The first few contributors 🎉🎉🎉🎉🎉🎉
+
+> **To proceed, make sure**...
+>
+> - You do not do anything bad because you didn't get what you wanted.
+> - Don't bully people about...
+>   - This licence
+>   - Not getting in the screen...
+>     - If you contributed (it takes 2 days to a month...
+
+[Keep reading the policy](2020/11/22/the-first-few-contributors-in-my-website/)
